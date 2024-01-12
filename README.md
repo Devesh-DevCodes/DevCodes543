@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DevCodes543
 - 👀 I’m interested in Coding , Development
 - 🌱 I’m currently learning DSA
-- 📫 How to reach me Deveshlucky200@gmail.com
+- 📫 How to reach me Deveshlucky0543@gmail.com
 - 😄 Pronouns: He/Him
 
   
