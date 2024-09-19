@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Devesh - @DevCodes543
+- 👋 Hi, I’m Devesh - @Devesh-DevCodes
 - 👀 I’m interested in Coding , Development
 - 🌱 I’m currently learning DSA
 - 📫 How to reach me Deveshlucky0543@gmail.com
